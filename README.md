@@ -25,8 +25,12 @@
 - i seen THE rob zombie live on **9/14/2026**
 - im autistic, and i have bpd, + some other stuff. Im quite aggressive normally
 - i yumeship with Baby firefly, and nikki freeman. Doubles dni, ok?
+- mexican, american
 - i am hyperfixated on wolves, and werewolfs. I AM a werewolf.
 - i usually sit alone, so c+h always, no matter what. Even if i have dni in my name, or with friends. Be not afraid
+- im usually offtab, not at my house, or doing something. Please, please, do whisper me. im a busy person, i dont reply quickly.
+- Discord - milliesaxe  . ask for socials, ill give you them.
+- im learning the electric guitar, and violin.
 
 </div>
 
@@ -39,5 +43,18 @@
 <div align="center">
 
 <p align="center"> <a href="https://github.com/kittinan/spotify-github-profile"> <img src="https://spotify-github-profile.kittinanx.com/api/view?uid=316agiybjugelgby7uld7gpf4d6e&cover_image=true&theme=novatorem&show_offline=false&background_color=121212&interchange=false&profanity=false&bar_color=53b14f&bar_color_cover=false"> </a>
+
+</div>
+
+</div>
+
+<div align="center">
+
+if you want a reason to block me here;
+- I support womens rights, and i believe abortions SHOULD BE LEGAL. its NOT murder if its not born btw. stay mad
+- i hate donald trump, and if you support him go die
+- i make charlie kirk jokes, and i dont give a fuck about his death
+- mexicans are not aliens, and we shouldnt be deported.
+- if you dont like me then block me, lmao. Im not here for your pussy drama
 
 </div>
