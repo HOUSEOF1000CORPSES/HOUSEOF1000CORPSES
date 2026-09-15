@@ -17,3 +17,11 @@
 
 </div>
 
+<div align="center">
+
+  Heello hello, im Living dead girl since i dont like names, but check my SP out if u want my names
+  - i use they / them, but i sometimes use all pronouns
+  Im a chapstick lesbian, and im intersex
+- i seen THE rob zombie live on **9/14/2026**
+
+</div>
