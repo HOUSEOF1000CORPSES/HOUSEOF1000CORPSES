@@ -23,6 +23,7 @@
   - i use they / them, but i sometimes use all pronouns
   Im a chapstick lesbian, and im intersex
 - i seen THE rob zombie live on **9/14/2026**
+- i use the pc, and im not always online since i have a life.
 - im autistic, and i have bpd, + some other stuff. Im quite aggressive normally
 - i yumeship with Baby firefly, and nikki freeman. Doubles dni, ok?
 - mexican, american
@@ -55,6 +56,18 @@ if you want a reason to block me here;
 - i hate donald trump, and if you support him go die
 - i make charlie kirk jokes, and i dont give a fuck about his death
 - mexicans are not aliens, and we shouldnt be deported.
+- + more. Im too lazy to type
 - if you dont like me then block me, lmao. Im not here for your pussy drama
+
+</div>
+
+
+
+<div align="center">
+
+wip.
+
+<img width="498" height="280" alt="house-of-1000-corpses-evil-clown" src="https://github.com/user-attachments/assets/42a386c4-b64b-44d9-b72f-66dfcb3ead18" />
+
 
 </div>
