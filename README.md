@@ -23,5 +23,8 @@
   - i use they / them, but i sometimes use all pronouns
   Im a chapstick lesbian, and im intersex
 - i seen THE rob zombie live on **9/14/2026**
+- im autistic, and i have bpd, + some other stuff. Im quite aggressive normally
+- i yumeship with Baby firefly, and nikki freeman. Doubles dni, ok?
+- i usually sit alone, so c+h always, no matter what. Even if i have dni in my name, or with friends. Be not afraid
 
 </div>
